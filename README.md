@@ -1,0 +1,1 @@
+# QAP36_VK_training
